@@ -1,1 +1,2 @@
 Farox17.github.io
+google-site-verification=P_3yoTNHeKRpgNPqjjdPdRyFdWJKZuWGN1l2c3m8ZBc
